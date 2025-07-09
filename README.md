@@ -1,6 +1,6 @@
 ## Hello, I'm Unnikrishnan.
 • Cybersecurity enthusiast! <br/>
-• Cyber forensics student at Mahatma Gandhi University, Kerala <br/>
+• Cyber forensics student at Mahatma        Gandhi University, Kerala <br/>
 •Always building,Learning and sharing!! <br/>
 •Feel free to contact me on Instagram [https://www.instagram.com/unniiiiii_/] <br/>
 
